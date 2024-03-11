@@ -1,0 +1,1 @@
+När man färdas längst med kusten kan man lätt glömma bort att man befinner sig inom det Jandariska Imperiets gränser. Här är kulturerna och arterna nästan lika många som det finns individer. 
